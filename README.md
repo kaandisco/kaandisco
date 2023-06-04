@@ -1,2 +1,1 @@
-Kaan Kadir Gayran 👋
-s
+**Kaan Kadir Gayran** 👋
